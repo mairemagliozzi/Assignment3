@@ -1,1 +1,2 @@
 # Assignment3
+One of my main hobbies is going to soccer games. I am a season ticket holder with the New England Revolution. I sit in the supporters section with my husband and my friends. We also travel sometimes to see different soccer games. We will be traveling in April to see the Unite States Women’s National team play in St. Louis. I have also traveled to Columbus, Cleveland, Chicago, Orlando, and New York/New Jersey among other places to see Revolution and national team games. 
